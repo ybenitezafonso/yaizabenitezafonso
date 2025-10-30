@@ -5,7 +5,7 @@ Con más de 10 años de experiencia en proyectos de banca, salud y seguros, actu
 
 📍 Santa Cruz de Tenerife (disponible remoto)  
 📧 [ybenitezafonso@gmail.com](mailto:ybenitezafonso@gmail.com)  
-🔗 [LinkedIn]([https://www.linkedin.com/in/yaiza-benitez-afonso](https://www.linkedin.com/in/yaiza-candelaria-ben%C3%ADtez-afonso-27197457/))  
+🔗 [LinkedIn](https://www.linkedin.com/in/yaiza-candelaria-ben%C3%ADtez-afonso-27197457/)  
 
 ---
 
